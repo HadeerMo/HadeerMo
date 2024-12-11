@@ -12,7 +12,7 @@
 <br>
 - 📫 How to reach me **hadirhadir665@gmail.com**
 <br>
-- 📄 Know about my experiences https://drive.google.com/file/d/1f02feWWb4F6coF7_xIrobdfrSL28-o75/view
+- 📄 Know about my experiences https://drive.google.com/file/d/1BXc-IDsKc7xoq6B5tgESj-jI-x0d1BCL/view?usp=sharing
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
